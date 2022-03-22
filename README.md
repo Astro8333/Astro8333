@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Astro8333
+- 👀 I’m interested in making games in java//javascript
+- 🌱 I’m currently learning nothing right now, however I have and will take classes in the future
+- 📫 Best way to reach me is by email: astro8333@yahoo.com
+- 🎮 AstroLive8333 on Xbox if you feel like playing FN,MC,DBD,etc
